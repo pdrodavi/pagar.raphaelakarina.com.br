@@ -1,0 +1,1 @@
+# pagar.raphaelakarina.com.br
